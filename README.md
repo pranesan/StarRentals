@@ -1,1 +1,1 @@
-# Rapid Rentals
+# Star Rentals
